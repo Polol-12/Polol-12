@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding, mathematics and science
 - 🌱 I’m currently learning HTML/CSS on Khan Academy
 - 💞️ I’m looking to collaborate on webpages
-- 📫 How to reach me email me at ahnafpolol@hotmail.com
+- 📫 How to reach me: Pls email me at ahnafpolol@hotmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am 12 years old.
 -
